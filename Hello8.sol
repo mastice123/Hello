@@ -10,3 +10,4 @@ Please don’t discuss on Fiverr about Telegram or WhatsApp..
 
 Thank You
 
+Texted you in whatsapp :)
